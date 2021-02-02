@@ -1,0 +1,2 @@
+# allinonesolarstreetlights
+All In One solar street light is a new-age form of lighting solution integrating solar panels, charge controller, LED light and battery.  These lights are available in two varieties, with infrared motion sensors and without, as part of the unit.  All In One solar street lights are becoming popular due to their compact design and multiple other advantages. For More Information : https://tapetum.in/collections/all-in-one-solar-street-lights
